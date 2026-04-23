@@ -2,7 +2,7 @@
 
 ## Your Name
 
-Artūras Grygelos
+Artūras Grygelis
 
 ---
 
